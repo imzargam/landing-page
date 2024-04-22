@@ -1,4 +1,3 @@
-Captivating design
-Smooth user experience
-Clear messaging
-Fully responsive
+smooth user experience 🚀 
+clear messaging 💬 
+fully responsive 📱
